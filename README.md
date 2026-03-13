@@ -1,7 +1,3 @@
-<p align="center">
-  <img src="7X5hrrXgv970EEkSR
-</p>
-
 ## Hi everyone 👋
 ❀彡 𝙄 𝙙𝙤𝙣'𝙩 𝙖𝙘𝙘𝙚𝙥𝙩 𝙧𝙖𝙣𝙙𝙤𝙢 𝙛𝙧𝙞𝙚𝙣𝙙 𝙧𝙚𝙦𝙪𝙚𝙨𝙩𝙨.
  
