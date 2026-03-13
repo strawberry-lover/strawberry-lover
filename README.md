@@ -1,5 +1,5 @@
 <p align="center">
-  <img src="1000272455.png" width="200">
+  <img src="sage valorant sticker.png" width="200">
 </p>
 
 
