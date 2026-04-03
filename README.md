@@ -1,4 +1,4 @@
-![Image](tiny-pomni-v0-oo8qfesjm96d1.png
+![Image](https://github.com/user-attachments/assets/tiny-pomni-v0-oo8qfesjm96d1.png
 )
 
 ## Hi everyone 👋
@@ -17,5 +17,3 @@
 ⑅ 𝙄'𝙢 𝙖𝙡𝙬𝙖𝙮𝙨 𝙤𝙥𝙚𝙣 𝙩𝙤 𝙨𝙝𝙞𝙥 𝙘𝙝𝙖𝙧𝙖𝙘𝙩𝙚𝙧𝙨❞
 
 ✿彡 𝙞𝙛 𝙮𝙤𝙪 𝙬𝙖𝙣𝙩 𝙩𝙤 𝙩𝙖𝙡𝙠, 𝙟𝙪𝙨𝙩 𝙨𝙚𝙣𝙙 𝙢𝙚 𝙖 𝙢𝙚𝙨𝙨𝙖𝙜𝙚 𝙤𝙣 𝙒𝙝𝙞𝙨𝙥𝙚𝙧.
-
-![Image](giphy.gif)
