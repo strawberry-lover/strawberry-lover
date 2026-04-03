@@ -1,4 +1,4 @@
-![Image](https://share.google/Sea0jt61Oz34VoG4K)
+![Image](https://github.com/user-attachments/assets/bc6b73a9-5869-46aa-9fb1-b53b4693f42e)
 
 ## Hi everyone 👋
 ❀彡 𝙄 𝙙𝙤𝙣'𝙩 𝙖𝙘𝙘𝙚𝙥𝙩 𝙧𝙖𝙣𝙙𝙤𝙢 𝙛𝙧𝙞𝙚𝙣𝙙 𝙧𝙚𝙦𝙪𝙚𝙨𝙩𝙨.
