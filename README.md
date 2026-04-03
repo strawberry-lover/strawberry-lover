@@ -1,4 +1,4 @@
-![Image](https://github.com/user-attachments/assets/bc6b73a9-5869-46aa-9fb1-b53b4693f42e)
+<img width="383" height="495" alt="Image" src="https://github.com/user-attachments/assets/ce9ea231-fbef-4130-9e27-d1549df52375" />
 
 ## Hi everyone 👋
 ❀彡 𝙄 𝙙𝙤𝙣'𝙩 𝙖𝙘𝙘𝙚𝙥𝙩 𝙧𝙖𝙣𝙙𝙤𝙢 𝙛𝙧𝙞𝙚𝙣𝙙 𝙧𝙚𝙦𝙪𝙚𝙨𝙩𝙨.
@@ -16,3 +16,7 @@
 ⑅ 𝙄'𝙢 𝙖𝙡𝙬𝙖𝙮𝙨 𝙤𝙥𝙚𝙣 𝙩𝙤 𝙨𝙝𝙞𝙥 𝙘𝙝𝙖𝙧𝙖𝙘𝙩𝙚𝙧𝙨❞
 
 ✿彡 𝙞𝙛 𝙮𝙤𝙪 𝙬𝙖𝙣𝙩 𝙩𝙤 𝙩𝙖𝙡𝙠, 𝙟𝙪𝙨𝙩 𝙨𝙚𝙣𝙙 𝙢𝙚 𝙖 𝙢𝙚𝙨𝙨𝙖𝙜𝙚 𝙤𝙣 𝙒𝙝𝙞𝙨𝙥𝙚𝙧.
+
+![Image](https://github.com/user-attachments/assets/9af53375-8e98-4813-9ddf-3a202d7c463c)
+
+![Image](https://github.com/user-attachments/assets/577f62b8-0892-4b9a-a67f-22975c46e8a2)
