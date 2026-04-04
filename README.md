@@ -24,3 +24,10 @@
 ![Image](https://github.com/user-attachments/assets/577f62b8-0892-4b9a-a67f-22975c46e8a2)
 
 Tʜɪs ɪs sᴏᴍᴇᴛʜɪɴɢ ᴏɴʟʏ ᴘᴇᴏᴘʟᴇ ᴡʜᴏ ʜᴀᴠᴇ ғʀɪᴇɴᴅs ᴏʀ ᴡʜᴏ ᴡᴀɴᴛ ᴛᴏ ʜᴀᴠᴇ ᴀ ғʀɪᴇɴᴅ, ᴄᴀɴ ᴇxᴘᴇᴄᴛ, ᴀɴᴅ ɪ ʜᴀᴠᴇ ᴀ ғʀɪᴇɴᴅ ʟɪᴋᴇ ᴛʜɪs 🎪: RingmasterCaine
+
+
+
+음악을 듣는 것은 사람에게 평온함과 안정을 의미합니다. 가끔 우리는 감정에 따라 음악을 듣기도 하죠. 슬플 때는 슬픈 노래를, 행복할 때는 행복한 노래를 선택해 듣곤 합니다.
+
+
+A veces, las personas no entienden los sentimientos de los demás y solo se ven a sí mismas como las que tienen la razón. No importa cuántas veces se les pida disculpas, no sirve de nada y siguen actuando a su manera. Las personas que hacen esto solo logran alejar a quienes las rodean, incluidos sus amigos
