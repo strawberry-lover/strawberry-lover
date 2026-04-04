@@ -1,6 +1,6 @@
 <img width="383" height="495" alt="Image" src="https://github.com/user-attachments/assets/ce9ea231-fbef-4130-9e27-d1549df52375" />
 
-## Hi everyone 👋
+## Haii everyone! 👋
 ❀彡 𝙄 𝙙𝙤𝙣'𝙩 𝙖𝙘𝙘𝙚𝙥𝙩 𝙧𝙖𝙣𝙙𝙤𝙢 𝙛𝙧𝙞𝙚𝙣𝙙 𝙧𝙚𝙦𝙪𝙚𝙨𝙩𝙨.
  
  °. I might be seem cold or rude, but I'm actually warm-hearted.
