@@ -1,5 +1,4 @@
-<img width="383" height="495" alt="Image" src="https://github.com/user-attachments/assets/ce9ea231-fbef-4130-9e27-d1549df52375" />
-
+![Image](https://github.com/user-attachments/assets/1ae07deb-d185-4a4f-991e-e29c64ef4247)
 ## Haii everyone! 👋
 ❀彡 𝙄 𝙙𝙤𝙣'𝙩 𝙖𝙘𝙘𝙚𝙥𝙩 𝙧𝙖𝙣𝙙𝙤𝙢 𝙛𝙧𝙞𝙚𝙣𝙙 𝙧𝙚𝙦𝙪𝙚𝙨𝙩𝙨.
  
@@ -43,18 +42,27 @@
 ![Image](https://github.com/user-attachments/assets/6c5281de-e965-4caf-aaa7-6a8c1887970b)
 
 𐙚 𝐈 𝐥𝐨𝐯𝐞 𝐩𝐥𝐚𝐲𝐢𝐧𝐠 𝐩𝐢𝐚𝐧𝐨 !
+
+![Image](https://github.com/user-attachments/assets/e4a314f0-f0af-4aa2-8feb-3a80ba7f7ea7)
+
 | ͜͞🪷৴𝑇ℎ𝑒𝑟𝑒 𝑎𝑟𝑒 𝑚𝑎𝑛𝑦 𝑠𝑖𝑛𝑔𝑒𝑟𝑠 𝐼 𝑒𝑛𝑗𝑜𝑦 𝑙𝑖𝑠𝑡𝑒𝑛𝑖𝑛𝑔 𝑡𝑜, 𝑎𝑛𝑑 𝑡ℎ𝑒 𝑔𝑒𝑛𝑟𝑒 𝑑𝑜𝑒𝑠𝑛'𝑡 𝑚𝑎𝑡𝑡𝑒𝑟 𝑡𝑜 𝑚𝑒, 𝐼 𝑒𝑛𝑗𝑜𝑦 𝑙𝑖𝑠𝑡𝑒𝑛𝑖𝑛𝑔 𝑡𝑜 𝑠𝑜𝑛𝑔𝑠 𝑖𝑛 𝑒𝑣𝑒𝑟𝑦 𝑙𝑎𝑛𝑔𝑢𝑎𝑔𝑒
 
 ౨ৎ˚𝕪𝕠𝕦 𝕔𝕒𝕟 𝕗𝕚𝕟𝕕 𝕞𝕖 𝕚𝕟 𝕒𝕝𝕞𝕠𝕤𝕥 𝕖𝕧𝕖𝕣𝕪 𝕗𝕒𝕟𝕕𝕠𝕞 ᜰ
 
 ઇઉ┆𝙎𝙤𝙢𝙚𝙩𝙞𝙢𝙚𝙨, 𝙥𝙚𝙤𝙥𝙡𝙚 𝙬𝙝𝙤 𝙚𝙣𝙩𝙚𝙧 𝙤𝙪𝙧 𝙡𝙞𝙫𝙚𝙨 𝙖𝙨 𝙛𝙧𝙞𝙚𝙣𝙙𝙨 𝙖𝙣𝙙 𝙬𝙞𝙩𝙝 𝙬𝙝𝙤𝙢 𝙬𝙚 𝙝𝙖𝙫𝙚 𝙬𝙤𝙣𝙙𝙚𝙧𝙛𝙪𝙡 𝙢𝙚𝙢𝙤𝙧𝙞𝙚𝙨, 𝙪𝙣𝙛𝙤𝙧𝙩𝙪𝙣𝙖𝙩𝙚𝙡𝙮, 𝙖𝙛𝙩𝙚𝙧 𝙖 𝙬𝙝𝙞𝙡𝙚, 𝙚𝙞𝙩𝙝𝙚𝙧 𝙝𝙖𝙫𝙚 𝙖 𝙛𝙞𝙜𝙝𝙩 𝙤𝙧 𝙗𝙚𝙩𝙧𝙖𝙮 𝙪𝙨, 𝙖𝙣𝙙 𝙞𝙩'𝙨 𝙙𝙞𝙛𝙛𝙞𝙘𝙪𝙡𝙩 𝙩𝙤 𝙘𝙤𝙣𝙩𝙞𝙣𝙪𝙚 𝙡𝙞𝙛𝙚 𝙖𝙨 𝙞𝙛 𝙣𝙤𝙩𝙝𝙞𝙣𝙜 𝙝𝙖𝙥𝙥𝙚𝙣𝙚𝙙 𝙖𝙣𝙙 𝙡𝙞𝙠𝙚 𝙩𝙬𝙤 𝙨𝙩𝙧𝙖𝙣𝙜𝙚𝙧𝙨.
 
+![Image](https://github.com/user-attachments/assets/f42899d8-2e27-40e8-b7a3-7c408ee0063c)
+
  ִֶָ ꫂWᴀᴛᴄʜɪɴɢ ᴀɴɪᴍᴇ ɪs ɢʀᴇᴀᴛ! sᴏᴍᴇᴛɪᴍᴇs I ᴅᴏɴ'ᴛ ᴜɴᴅᴇʀsᴛᴀɴᴅ ᴘᴇᴏᴘʟᴇ ᴡʜᴏ ᴅᴏɴ'ᴛ ᴡᴀᴛᴄʜ ᴏʀ ʟɪᴋᴇ ᴀɴɪᴍᴇ. I ᴛʜɪɴᴋ ᴀɴɪᴍᴇ ᴄᴏɴᴛᴀɪɴs ᴠᴇʀʏ ᴍᴇᴀɴɪɴɢғᴜʟ ᴛʜɪɴɢs, ʀᴇᴀʟ-ʟɪғᴇ ᴇᴠᴇɴᴛs, ᴏʀ ᴘᴇᴏᴘʟᴇ ᴡʜᴏ sᴇᴇ ᴛʜᴇɪʀ ᴏᴡɴ ʟɪᴠᴇs ᴛʜᴏsᴇ ᴀɴɪᴍᴇ. Eᴠᴇɴ ᴘᴇᴏᴘʟᴇ ᴡɪᴛʜ sᴏᴄɪᴀʟ ᴀɴxɪᴇᴛʏ ᴜɴᴅᴇʀsᴛᴀɴᴅ ᴛʜᴀᴛ ᴛʜᴇ sɪᴛᴜᴀᴛɪᴏɴs ᴅᴇᴘɪᴄᴛᴇᴅ ᴀʀᴇ ʀᴇᴀʟ ʙᴇᴄᴀᴜsᴇ ᴛʜᴇʏ sᴇᴇ ᴛʜᴇᴍsᴇʟᴠᴇs ɪɴ ᴛʜᴇ ᴄʜᴀʀᴀᴄᴛᴇʀs. এ
 
+![Image](https://github.com/user-attachments/assets/8be26747-3b6a-44b4-bc4d-572ab5287f81)
 
  𓄼𓈒🌸،ଓ 𝙄 𝙖𝙢 𝙣𝙚𝙫𝙚𝙧 𝙧𝙖𝙘𝙞𝙨𝙩 𝙤𝙧 𝙨𝙚𝙭𝙞𝙨𝙩, 𝙖𝙣𝙙 𝙄 𝙬𝙤𝙪𝙡𝙙 𝙣𝙚𝙫𝙚𝙧 𝙨𝙖𝙮 𝙖𝙣𝙮𝙩𝙝𝙞𝙣𝙜 𝙗𝙖𝙙 𝙖𝙗𝙤𝙪𝙩 𝙖𝙣𝙮𝙤𝙣𝙚, 𝙧𝙚𝙜𝙖𝙧𝙙𝙡𝙚𝙨𝙨 𝙤𝙛 𝙩𝙝𝙚𝙞𝙧 𝙨𝙚𝙭𝙪𝙖𝙡 𝙤𝙧𝙞𝙚𝙣𝙩𝙖𝙩𝙞𝙤𝙣 𓍼𓈒 ໋
 
 ↳ Living life on my own terms. 🌿 #AroAce ✓
 
+![Image](https://github.com/user-attachments/assets/0b9a8b4e-2d7d-4890-8035-ecb584149945)
+
 ᰔᩚ Cupid missed me, and I’m fine with that. 🏹🚫
 
+![Image](https://github.com/user-attachments/assets/2be50bd2-5176-4dbf-a86c-e2cdc6de8201)
