@@ -1,5 +1,8 @@
 <img width="1920" height="1920" alt="Image" src="https://github.com/user-attachments/assets/4f544208-eb0f-48f3-9cfb-88c4c8d76780" />
 
+       𓍼𓈒 ໋​🎨 𝐃𝐢𝐠𝐢𝐭𝐚𝐥 𝐀𝐫𝐭𝐢𝐬𝐭 & 𝐄𝐝𝐢𝐭𝐨𝐫
+       ⇢ 🚫 𝙋𝙡𝙚𝙖𝙨𝙚 𝙙𝙤𝙣'𝙩 𝙪𝙨𝙚/𝙩𝙖𝙠𝙚
+       ❀𓈒 🌟 𝑀𝓎 𝑖𝑚𝑎𝑔𝑖𝑛𝑎𝑡𝑖𝑜𝑛, 𝑀𝓎 𝑐𝑟𝑒𝑎𝑡𝑖𝑜𝑛
 
 ## Haii everyone! 👋
 ❀彡 𝙄 𝙙𝙤𝙣'𝙩 𝙖𝙘𝙘𝙚𝙥𝙩 𝙧𝙖𝙣𝙙𝙤𝙢 𝙛𝙧𝙞𝙚𝙣𝙙 𝙧𝙚𝙦𝙪𝙚𝙨𝙩𝙨.
