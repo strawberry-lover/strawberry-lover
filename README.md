@@ -1,4 +1,6 @@
-![Image](https://github.com/user-attachments/assets/1ae07deb-d185-4a4f-991e-e29c64ef4247)
+<img width="1920" height="1920" alt="Image" src="https://github.com/user-attachments/assets/4f544208-eb0f-48f3-9cfb-88c4c8d76780" />
+
+
 ## Haii everyone! 👋
 ❀彡 𝙄 𝙙𝙤𝙣'𝙩 𝙖𝙘𝙘𝙚𝙥𝙩 𝙧𝙖𝙣𝙙𝙤𝙢 𝙛𝙧𝙞𝙚𝙣𝙙 𝙧𝙚𝙦𝙪𝙚𝙨𝙩𝙨.
  
