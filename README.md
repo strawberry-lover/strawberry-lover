@@ -6,6 +6,9 @@
      🎧 𝐿𝑖𝑠𝑡𝑒𝑛 𝑡𝑜 "𝙉𝙤𝙩 𝘼𝙡𝙤𝙣𝙚" 𝑤ℎ𝑖𝑙𝑒 𝑣𝑖𝑒𝑤𝑖𝑛𝑔.
     ❝𝐇𝐨𝐧𝐞𝐲𝐞𝐝 𝐌𝐨𝐦𝐞𝐧𝐭𝐬 𝐢𝐧 𝐚 𝐃𝐢𝐠𝐢𝐭𝐚𝐥 𝐃𝐫𝐞𝐚𝐦.🐝❞
 
+
+<img width="1920" height="1920" alt="Image" src="https://github.com/user-attachments/assets/76c13371-397e-4583-a4e3-1d3c2f0065e0" />
+
 ## Haii everyone! 👋
 ❀彡 𝙄 𝙙𝙤𝙣'𝙩 𝙖𝙘𝙘𝙚𝙥𝙩 𝙧𝙖𝙣𝙙𝙤𝙢 𝙛𝙧𝙞𝙚𝙣𝙙 𝙧𝙚𝙦𝙪𝙚𝙨𝙩𝙨.
  
