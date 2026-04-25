@@ -12,7 +12,7 @@
 <img width="1280" height="898" alt="Image" src="https://github.com/user-attachments/assets/cd5a88f4-430c-4ab6-9d33-684f9920d36d" />
 
     ༄.𝘽𝙧𝙤𝙤𝙠𝙡𝙮𝙣 𝘽𝙖𝙗𝙮 𝙪𝙣𝙙𝙚𝙧 𝘾𝙪𝙥𝙞𝙙'𝙨 𝙨𝙥𝙚𝙡𝙡.❞
-               🏹 😵‍💫 💘
+                 🏹 😵‍💫 💘
 
 ## Haii everyone! 👋
 ❀彡 𝙄 𝙙𝙤𝙣'𝙩 𝙖𝙘𝙘𝙚𝙥𝙩 𝙧𝙖𝙣𝙙𝙤𝙢 𝙛𝙧𝙞𝙚𝙣𝙙 𝙧𝙚𝙦𝙪𝙚𝙨𝙩𝙨.
